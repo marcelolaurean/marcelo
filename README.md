@@ -5,3 +5,5 @@ estudante de engenharia da computaçaõ
  aluno desde 2020
 
  mora em ribeirão preto
+casado
+2 filhos
